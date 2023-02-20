@@ -1,2 +1,2 @@
 # Oosterwijk
-https://irisdum15.github.io/Oosterwijk/ 
+https://krinkels-bomen13.github.io/Oosterwijk/
